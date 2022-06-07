@@ -51,7 +51,7 @@ https://amzn.to/3moa7iW
 
 ## Pergear LaserStorm S10 Video
 
-Full review video: 
+Full review video: https://youtu.be/16AG46yZkUo
 
 Exhaust ventillation system/install: TBD 
 
