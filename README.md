@@ -15,9 +15,43 @@ Chat: <a href="https://discord.gg/j9S4Fgv">Discord</a></b>!
 ## The Pergear LaserStorm S10 Laser engraver I have: 
 
 
+Pergear LaserStrom S10:
+
+Amazon US:  https://amzn.to/3tliwHz
+
+Amazon CA: https://amzn.to/3Qg00ue
+
+Amazon UK: https://amzn.to/3MuWg4F
+
+Pergear: https://www.pergear.com/products/pergear-laserstorm-s10  
+ 
+
+Pergear R3 Laser Rotary Roller: 
+
+Amazon US: https://amzn.to/3NtenJQ
+
+Amazon CA:  https://amzn.to/3xmDf0c
+
+Amazon UK: https://amzn.to/3MxHFWw
+
+
+Pergear Portable Air Assist Pump:
+
+https://amzn.to/3GTGvmV
+
+https://amzn.to/395G905
+ 
+Pergear Laser Honeycomb Working Table：
+
+https://amzn.to/3NV5t7E 
+
+https://amzn.to/3moa7iW
+
+
+
 ## Pergear LaserStorm S10 Video
 
-Full review video: 
+Full review video: https://youtu.be/16AG46yZkUo
 
 Exhaust ventillation system/install: TBD 
 
